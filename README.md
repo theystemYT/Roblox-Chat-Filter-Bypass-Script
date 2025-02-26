@@ -1,0 +1,1 @@
+If you get a key system prompt while executing this script, the key is patchmeplease. The key will change weekly so join the discord of the script to get a new key. Discord link: discord.gg/usercreated
